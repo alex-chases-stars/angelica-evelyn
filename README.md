@@ -1,1 +1,12 @@
-still a work in progress
+HIHI my names Angelica Evelyn! but most people just call me Angie
+Im always looking forward to making new friends, so if you wanna friend me, be aware of the things that i will mention in this
+I have autism, ADHD and BPD so pls be patient with me!
+I am a minor! im 15 and my birthday is on the 4th of September!
+I am a proshipper, darkshipper and multishipper, so if you are uncomfortable with any of those things i'd suggest not interacting with me
+I am a yumeshipper too! i am a sharing yume of Severus Snape from Harry Potter and Ghostbur from the DSMP
+I am in MULTIPLE fandoms, so we might share a lot of interests in common!
+My favorite games are Minecraft, Undertale and The Stanley Parable
+I am NOT WSS but i do still like Wilbur Soot, with him being one of my main interests
+I like to say that i am stuck in 2020/21 cus of how much my interests, music taste, and life style choices circle aronund the ones from those years
+Going back to the whole stuck in 2020/21 thing, i am a 2020alt/2020 bunny hat kid! (tho i don't dress up much cus my parents don't let me)
+I have social anxiety, so i might be quite shy at first, but i promise im quite fun once you get to know me!

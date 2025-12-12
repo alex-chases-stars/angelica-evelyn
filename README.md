@@ -2,6 +2,7 @@
 -Im always looking forward to making new friends, so if you wanna friend me, be aware of the things that i will mention in this
 -I have autism, ADHD and BPD so pls be patient with me!
 -I am a minor! im 15 and my birthday is on the 4th of September!
+-I am Brazilian! and i dream of moving to England one day
 -I am a proshipper, darkshipper and multishipper, so if you are uncomfortable with any of those things i'd suggest not interacting with me
 -I am a yumeshipper too! i am a sharing yume of Severus Snape from Harry Potter and Ghostbur from the DSMP
 -I am in MULTIPLE fandoms, so we might share a lot of interests in common!

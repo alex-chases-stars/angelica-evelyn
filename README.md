@@ -11,4 +11,3 @@
 -I like to say that i am stuck in 2020/21 cus of how much my interests, music taste, and life style choices circle aronund the ones from those years
 -Going back to the whole stuck in 2020/21 thing, i am a 2020alt/2020 bunny hat kid! (tho i don't dress up much cus my parents don't let me)
 -I have social anxiety, so i might be quite shy at first, but i promise im quite fun once you get to know me!
--I am taken by my two lovely partners Seth and Bell
